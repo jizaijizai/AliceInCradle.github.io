@@ -1,1 +1,1 @@
-# https://jizaijizai.github.io/
+# jizaijizai.github.io/
